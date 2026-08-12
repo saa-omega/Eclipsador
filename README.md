@@ -1763,7 +1763,7 @@ Los enlaces anteriores están integrados también dentro de la aplicación para 
 
 ---
 
-**OMEGA · Sociedad Astronómica Asturiana OMEGA**
+**Raúl Pardo · OMEGA · Sociedad Astronómica Asturiana OMEGA**
 **12 de agosto de 2026 · Asturias**
 **Eclipse total de Sol**
 
